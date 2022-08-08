@@ -1,6 +1,6 @@
 - 👋 ooi, meu nome é Nathalia Ramos
-- 👀 estou interessada em me formar em moda
-- 🌱 I’m currently learning ...
+- 👀 estou interessada em me formar em moda/dança
+- 🌱 atuamente estou estudando programação
 - 💞️ eu gosto de dançar
 - 📫 voce pode me achar em ramos.lima.nathalia@gmail.com
 
