@@ -1,6 +1,6 @@
 - 👋 heey, meu nome é @nathhhramos
 - 👀 estou interessada em me formar em moda/dança
-- 🌱 atuamente estou estudando programação
+- 🌱 atuamente estou cursando ensino medio
 - 💞️ eu gosto de dançar
 - 📫 voce pode me achar em ramos.lima.nathalia@gmail.com
 
