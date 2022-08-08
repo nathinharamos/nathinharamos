@@ -1,4 +1,4 @@
-- 👋 ooi, meu nome é Nathalia Ramos
+- 👋 heey, meu nome é @nathhhramos
 - 👀 estou interessada em me formar em moda/dança
 - 🌱 atuamente estou estudando programação
 - 💞️ eu gosto de dançar
