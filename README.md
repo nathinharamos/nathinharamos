@@ -2,7 +2,7 @@
 - 👀 estou interessada em me formar em moda
 - 🌱 I’m currently learning ...
 - 💞️ eu gosto de dançar
-- 📫 How to reach me ...
+- 📫 voce pode me achar em ramos.lima.nathalia@gmail.com
 
 <!---
 nathinharamos/nathinharamos is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
